@@ -1,0 +1,2 @@
+# mantap
+Script lengkap bro
